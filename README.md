@@ -3,7 +3,7 @@ lohikhiuhiuhlm;m;lmlml;m;lm
 lknlnlonoln;m;m;m;m.lm.mmlmml.mlm
 lomonpojjojpojpjlm;m;m;m;m;m;mihiuhihiuhiuh
 hhihihioh;m;m;m;m;m;m;m;m;m;m;m;m;m;m;m;
-;lmk;dfm;mvflm;m;m;m;m;
+;lmk;dfm;mvflm;m;m;m;m;;k;;k;k;k;k;
 xccdscdscds
 ml.ml.mlmlmlmljlojojojo
 lmnlmlnlnlnlnl

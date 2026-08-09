@@ -1,7 +1,6 @@
 lohikhiuhiuhlm;m;lmlml;m;lmdcvdvdcvdcb gfbfgbgfbccbbbvbfbfb
 3ewedweffewfew,  .l.lml.mlmlmlmldzvdxvdx xcv cxvfdvfdvfd
-lomonpojjojpojpjlm;m;m;m;m;m;mihiuhihiuhiuhlnlnlnln;m;m, k kn llklkm bcvb cv bvc
-hhihihioh;m;m;m;m;m;m;m;m;m;m;m;m;m;m;m;vxccx vnknnkn bcvbcvb
+hhihihioh;m;m;m;m;m;m;m;m;m;m;m;m;m;m;m;vxccx vnknnkn bcvbcv
 ;lmk;dfm;mvflm;m;m;m;m;;k;;k;k;k;k;lknlnlnlnkln;mmmlmlmlmcvlvdv
 xccdscdscdsvdvd cx x cx dcvcdvxcv xccv cvvfdvfdvfdvbcvbcvb vc
 ml.ml.mlmlmlmljlojojojovfcvdxvdd bcv bvcvcbjhvhvjhbcvbvb vcb 
